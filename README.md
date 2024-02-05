@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @xVartolumei
+- 👀 I’m interested in Java/Kotlin/Python
+- 🌱 I’m currently learning Kotlin
+- 📫 How to reach me (NOT FOR NOW!)
+- 😄 Pronouns: Gotham needs me!
+- ⚡ Fun fact: DROG
